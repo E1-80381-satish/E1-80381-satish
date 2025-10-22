@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @E1-80381-satish kumar
+- 👋 Hi, I’m Satish kumar
 - 📫 How to reach me : skpermail@gmail.com
 
 <!---
